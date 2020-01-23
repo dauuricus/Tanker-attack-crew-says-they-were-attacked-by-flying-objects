@@ -12,4 +12,6 @@ President Yutaka Katata of Tokyo shipping company Kokuka Sangyo told a press con
 
 https://www.youtube.com/watch?time_continue=311&v=C8wLmHY9EBM
 
+https://github.com/dauuricus/Tanker-attack-crew-says-they-were-attacked-by-flying-objects/commit/05aa0efe1a1d1b43da922fdc0f29e14872ba771d#diff-c7824f3d4d5f7b2f22d034758c1e9454
+
 
